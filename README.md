@@ -1,1 +1,0 @@
-# snabbhjalpkontakt-afk.github.io
